@@ -1,1 +1,2 @@
 Nathaniel Nguyen
+nguynath@oregonstate.edu
